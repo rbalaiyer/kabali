@@ -1,2 +1,2 @@
-# kabali
+# business economics
 kabali promotion mix
